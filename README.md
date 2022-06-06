@@ -114,3 +114,5 @@ The compiled data in combination with the visualizations proved quite useful to 
 
 
 
+Email: hendersonalec2212@gmail.com
+LinkedIn: https://www.linkedin.com/in/alec-henderson-8011b521a/
